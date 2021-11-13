@@ -1,2 +1,0 @@
-# GetChristmass
-INFO + DETAILS
